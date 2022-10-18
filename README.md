@@ -9,6 +9,6 @@
     - I can speak almost 6 languages :call_me_hand:.
     - If you see me with my earphones in, I'm probably listening to either Charles Aznavour or Edith Piaf. :woman_dancing:
     - I am currently building up my skillset to help :crossed_fingers: with the technical side of Domestic Violence Shelters' websites in the Boston area. 
-    - I'm Turkish-American! :us: :tr:
+    - I'm Turkish-American! :tr: :us: 
     - My middle name, "Perim," means "my fairy" :fairy_woman: in english!
     - I love solo traveling :earth_africa: :world_map:
