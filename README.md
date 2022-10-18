@@ -1,7 +1,7 @@
 # :sun_with_face: Hi! I'm Tara Sarli. :sun_with_face:
 
 
-- I'm a Junior at BU :woman_student: double majoring in Computer Science :woman_technologist: and Psychology :partying_face: :nerd_face:!
+- I'm a Junior at BU :woman_student: double majoring in **Computer Science** :woman_technologist: and **Psychology** :partying_face: :nerd_face:!
 - I'm interested in learning everything tech related and applying my skillset to help people :smiling_face_with_three_hearts:!
 
 
