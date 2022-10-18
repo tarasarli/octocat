@@ -1,4 +1,4 @@
-# :point_right: Hi! I'm Tara Sarli. :point_left:
+# :sun_with_face: Hi! I'm Tara Sarli. :sun_with_face:
 
 :sun_with_face:
 
