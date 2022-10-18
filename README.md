@@ -1,7 +1,4 @@
-# octocat
-My personal repository
-
-:point_right: Hi! I'm Tara Sarli. :point_left:
+# :point_right: Hi! I'm Tara Sarli. :point_left:
 
 :sun_with_face:
 
